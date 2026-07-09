@@ -1,4 +1,3 @@
-# alwayslearninggailbailey2
 # Gail Bailey — Digital Learning Portfolio
 
 **Reconversion stratégique vers la conception de parcours digital learning durables.**
