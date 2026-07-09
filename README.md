@@ -1,13 +1,13 @@
 # Gail Bailey — Digital Learning Portfolio
 
 **Reconversion stratégique vers la conception de parcours digital learning durables.**
-Anglais professionnel • Ingénierie pédagogique • Anglais natif
+Anglais natif • Français B2 • Ingénierie pédagogique • 
 
 ---
 
 ## À propos
 
-De la transmission à la conception : après plusieurs années à animer des formations en anglais professionnel, je me forme aujourd'hui à la conception de parcours digital learning — avec une approche ancrée dans les sciences de l'apprentissage (SLA) et une attention particulière à l'impact mesurable.
+De la transmission à la conception : après plusieurs années à animer des formations en anglais professionnel et création de contenus, je me forme aujourd'hui à la conception de parcours Ingénieur Responsable Pédagogique — avec une approche ancrée dans les sciences de l'apprentissage (SLA) et une attention particulière à l'impact mesurable.
 
 **Chiffres clés :** 91% de satisfaction apprenants (40+ apprenants) • +260% de trafic organique généré (British Council)
 
